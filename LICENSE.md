@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Stitchtoretake.github.io/a-web-ai-obetection-ai-mz59/ ) |
  |---------------------|----------------------:|
 
 
