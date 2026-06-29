@@ -1,4 +1,4 @@
-# 
+# Automático A web AI object detection herramientas. Con redes neuronales y ética de la IA — optimizado para el máximo rendimiento.
 
 
 
